@@ -1,0 +1,1 @@
+evan.nudd@mymail.champlain.edu Burlington, VT
